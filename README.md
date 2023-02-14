@@ -1,1 +1,1 @@
-# my-profile-jc
+# My Profile JC
